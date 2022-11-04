@@ -1,4 +1,4 @@
-👋 Hi, I’m @Shasuau 
+👋 Hi, I’m Brandon! 
 
 👀 I'm into Game and Program Development 
 
